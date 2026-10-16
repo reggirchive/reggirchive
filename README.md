@@ -1,9 +1,9 @@
 ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀𓏴 ⠀   he / they   ⠀ ⠀:⠀ ⠀15
 
-⠀( 🐚 ) ⠀  ——  ⠀  normally afk .. c+h is welcomed, mostly w2i
+⠀( 𓏲⋆☁️ ) ⠀  ——  ⠀  normally afk .. c+h is welcomed, mostly w2i
 
-᠃  ᠌ ᠌ i don't talk a lot, im anxious . i will warm up to you    𓍢  ִ 🌙
+᠃  ᠌ ᠌ i don't talk a lot, im anxious. i will warm up to you    𓍢  ִ 🌕
 
- ⠀── ✧ ・⸝⸝
+ ⠀── ✧ ・⸝⸝⠀ fuck jkr .
 
- <img width="498" height="209" alt="billie-eilish-ice-cream" src="https://github.com/user-attachments/assets/f0a60f09-859a-4d31-ac5d-1583d6b1e010" />
+ <img width="500" height="200" alt="hp train" src="https://github.com/user-attachments/assets/3e38145d-ede5-4ac0-923f-7f4e40ac744e" />
