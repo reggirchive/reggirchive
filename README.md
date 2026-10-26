@@ -1,4 +1,4 @@
-⠀ ⠀  ⠀ ⠀ ⠀⠀   ⠀ ⠀𓏴 ⠀   he / they   ⠀ ⠀:⠀ ⠀15
+⠀ ⠀  ⠀ ⠀ ⠀⠀   ⠀ ⠀𓏴 ⠀   he / they   ⠀ ⠀:⠀ ⠀15 
 
 ⠀( 𓏲⋆✉︎ ) ⠀  ——  ⠀  normally afk .. c+h is welcomed, mostly w2i
 
